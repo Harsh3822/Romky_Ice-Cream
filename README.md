@@ -25,8 +25,7 @@
 
 
 📞 Contact & Footer Area     
-![Ice Cream-5](https://github.com/user-attachments/assets/208ef838-1f84-402c-b157-2c4f3285c139)
-
+![Ice Cream-5](https://github.com/user-attachments/assets/4193a296-1f13-446f-a527-38cd24263c80)
 
 ---
 
